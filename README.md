@@ -1,6 +1,6 @@
 # Best Office Interior Design: Creating Inspiring and Productive Workspaces with Aurelian Design
 
-Best office [[interior design](https://aureliandesign.ae/)](url) is about creating a workspace that combines functionality, comfort, aesthetics, and productivity. A thoughtfully designed office does more than look impressive; it influences employee well-being, supports collaboration, strengthens brand identity, and creates a positive impression on clients and visitors.
+Best office [[interior design](https://aureliandesign.ae/)] is about creating a workspace that combines functionality, comfort, aesthetics, and productivity. A thoughtfully designed office does more than look impressive; it influences employee well-being, supports collaboration, strengthens brand identity, and creates a positive impression on clients and visitors.
 
 Whether you are designing a corporate office, a creative studio, or a modern business workspace, every design element matters. From furniture selection and lighting to colour schemes and space planning, the right decisions can transform an ordinary workplace into an inspiring professional environment.
 
@@ -74,7 +74,7 @@ Smart storage solutions also make better use of available floor space.
 ## Popular Office Interior Design Styles
 
 Choosing the right design style helps establish the atmosphere and personality of a workplace.
-Modern Office Design: Features clean lines, functional furniture, open layouts, and contemporary finishes.
+[[Modern Office Desig](https://aureliandesign.ae/)]: Features clean lines, functional furniture, open layouts, and contemporary finishes.
 Minimalist Office Design: Focuses on simplicity, uncluttered workstations, neutral colours, and purposeful furniture.
 Luxury Office Design: Incorporates premium materials, statement lighting, elegant furniture, and refined detailing.
 Industrial Office Design: Uses exposed structural elements, metal finishes, concrete textures, and practical furniture.
